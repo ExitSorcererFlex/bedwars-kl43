@@ -1,4 +1,4 @@
-
+secret bedwars Scripts offers the most advanced bedwars Script, with esp and auto-sell. Perfect for dominating any match.
 
 
 
